@@ -1,0 +1,1 @@
+https://www.mediafire.com/file_premium/mc8g9clig32d2mr/Rom_patch_A042M__U3_Flash2phone.rar/file?fbclid=IwY2xjawGqJvxleHRuA2FlbQIxMQABHe_kspCsEkG_REUGcnjhNq4-ZFgk5boeRPxml36-GrgxZxDZfVfsSHvS4Q_aem_5QnDZfh1bvnQO2RbsTzlFw
